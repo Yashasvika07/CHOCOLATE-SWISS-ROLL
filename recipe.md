@@ -1,0 +1,12 @@
+# **STEPS**
+* Heat oven to 375°F. Line bottoms only of two 15x10x1-inch pans with cooking parchment paper. Spray parchment paper with baking spray with flour.
+* In large bowl, beat eggs with electric mixer on high speed about 6 minutes or until thick and lemon colored. Add cake mix, water and oil. Beat on low speed 30 seconds; scrape bowl. Beat on medium speed 1 minute. Pour 2 1/4 cups batter into each pan; spread evenly.
+* Bake 10 to 12 minutes or until cake springs back when lightly touched in center.
+* Meanwhile, sprinkle 1/2 cup powdered sugar over two clean kitchen towels. Remove cakes from oven. Run metal spatula around edges of pans; carefully turn one onto each kitchen towel. Peel away parchment paper. Immediately roll up cake and towel from narrow end. Cool cakes on rack 30 minutes with seam centered on bottom of cake.
+* In large bowl, beat marshmallow creme, softened butter and vanilla with electric mixer on medium speed until smooth, scraping bowl occasionally. On low speed, beat in 1 1/2 cups powdered sugar until smooth and creamy.
+* Carefully unroll cakes. Allow narrow end to remain slightly curled. Drop 1 cup of the filling by spoonfuls over each cake, and spread evenly to within 1/2 inch of edges. Reroll filled cakes, using kitchen towel to help roll up cake. Wrap in plastic wrap, making sure seam is centered on bottom. Place both wrapped cakes on cookie sheet; refrigerate 30 minutes.
+* In small microwavable bowl, microwave chocolate chips and whipping cream uncovered on High 40 to 60 seconds; stir. Continue to microwave in 10-second increments until chips can be stirred smooth. Let stand 5 to 10 minutes or until slightly thickened and still pourable. Place cakes on cooling rack placed over waxed paper. Pour chocolate mixture over each cake to cover. Return cakes to refrigerator about 30 minutes or until chocolate is set. Store loosely covered in refrigerator.
+
+## EXPERT TIPS 
+ 1. Set a timer to be sure you beat the eggs for a full 6 minutes. This will help ensure a spongy cake texture and will help keep the cake from breaking when you roll it.
+ 1. You must roll the cake into the tea towel immediately after turning it out. The cake is most malleable while still hot.
